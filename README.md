@@ -4,6 +4,8 @@ VERY IMPORTANT: https://github.com/ArisGuimera?tab=repositories
 
 https://www.youtube.com/@DevKiper/videos
 
+https://github.com/MKiperszmid?tab=repositories
+
 https://www.youtube.com/@mouredev
 
 https://github.com/mouredev?page=2&tab=repositories
